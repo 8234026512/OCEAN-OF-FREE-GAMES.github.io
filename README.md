@@ -1,1 +1,1 @@
-# OCEAN-OF-FREE-GAMES.github.io
+# Ocean-of-free-games.github.io
